@@ -13,7 +13,11 @@
 
 - 👯 I’m looking to collaborate on **Web Development Projects**
 
+- 👨‍💻 All of my projects are available at [https://aadhithya2710.github.io/Portfolio/](https://aadhithya2710.github.io/Portfolio/)
+
 - 📫 How to reach me **aadhithyabalaji2005@gmail.com**
+
+- 📄 Know about my experiences [https://drive.google.com/file/d/1VgJ1Mbr0gR63x2gHLE6bhJa3Aeu4L4UT/view?usp=drivesdk](https://drive.google.com/file/d/1VgJ1Mbr0gR63x2gHLE6bhJa3Aeu4L4UT/view?usp=drivesdk)
 
 - ⚡ Fun fact **I am good at sales 💸**
 
